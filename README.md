@@ -1,1 +1,0 @@
-# Jam-digital-made-by-firman
